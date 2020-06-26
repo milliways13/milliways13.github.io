@@ -13,4 +13,4 @@ As "The Bride" alias "Kiddo" alias "Black Mamba" always says:
 > Where is Bill?
 
 
-<img src="https://www.imdb.com/title/tt0266697/mediaviewer/rm2033140224"> 
+<img src="https://m.media-amazon.com/images/M/MV5BNzM3NDFhYTAtYmU5Mi00NGRmLTljYjgtMDkyODQ4MjNkMGY2XkEyXkFqcGdeQXVyNzkwMjQ5NzM@._V1_.jpg"> 
