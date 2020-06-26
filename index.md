@@ -12,4 +12,5 @@ Mein Lieblingscharakter im Film wird von Uma Thurman in Kill Bill verkörpert. I
 As "The Bride" alias "Kiddo" alias "Black Mamba" always says:
 > Where is Bill?
 
-<img src="https://images.mediabiz.de/flbilder/max03/mbiz03/mbiz40/z0340511/b780x450.jpg"> Famous Kiddo
+
+<img src="https://www.imdb.com/title/tt0266697/mediaviewer/rm2033140224"> 
