@@ -8,3 +8,6 @@ Mein Lieblingscharakter im Film wird von Uma Thurman in Kill Bill verkörpert. I
 * Most dangerous woman in the world
 * Able to self-heal complete disabling by her pure will
 * Favorite color: Yellow
+
+As "The Bride" alias "Kiddo" alias "Black Mamba" always says:
+> Where is Bill?
